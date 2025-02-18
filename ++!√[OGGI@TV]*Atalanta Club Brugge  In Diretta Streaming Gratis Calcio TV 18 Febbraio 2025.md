@@ -1,19 +1,9 @@
-Atalanta affronterà Club Brugge KV il 18 feb 2025 alle 20:00 UTC allo Gewiss Stadium stadio, Bergamo città, Italy. La partita è di UEFA Champions League, Knockout Phase.
-Atalanta ha giocato contro Club Brugge KV 1 partite in questa stagione.
-Sul livescore di Sofascore puoi trovare tutti i risultati precedenti di Atalanta contro Club Brugge KV selezionati tra tutti i loro incontri. Sofascore inoltre offre il miglior modo per seguire il risultato in diretta della partita grazie alle molteplici funzionalità. Tu puoi:
-Scopri in diretta chi ha segnato nella partita
-Ottieni informazioni in tempo reale su quale squadra sta dominando nella partita usando la funzionalità 'Attack Momentum'
-Segui le statistiche nei dettagli come possesso palla, tiri, calci d'angolo, grandi occasioni create, cartellini, passaggi chiave, duelli e molto altro
-Segui sempre tutti le partite in casa e in trasferta di ogni squadra della UEFA Champions League, Knockout Phase
-Scopri cosa pensa la community di Sofascore su quale squadra è favorita a vincere questa partita.
-Tutte queste funzionalità possono aiutarti a decidere su come potrebbe andare la partita tra {homeTeamName} vs {awayTeamName}. Anche se Sofascore non offre direttamente la possibilità di scommettere, noi selezioniamo le migliori quote e ti mostriamo i migliori siti che offrono scommesse live. Le quote live di {streamSponsor} si possono vedere sulla sezione live score</sportlink> di Sofascore <sportlink>{sportName}.
-Dove posso guardare Atalanta vs. Club Brugge KV? Nella sezione Canali TV puoi trovare la lista di tutti i canali che trasmettono in diretta Atalanta – Club Brugge KV. Potresti trovare la partita in diretta streaming nei nostri siti di scommesse partner o cliccando nei link legali offerti direttamente da Sofascore.
-Dettagli eventi:
-NOME: Atalanta - Club Brugge KV
-DATA: 18 feb 2025
-TEMPO: 20:00 UTC
-SEDE: Gewiss Stadium, Bergamo, Italy
-Maggiori dettagli:
-Atalanta risultati in diretta, programmi e punteggi
-Club Brugge KV risultati in diretta, programmi e punteggi
-Sofascore livescore è disponibile come app per iPhone e iPad, Android e Windows Phone. Potete trovarli in tutti gli store nelle diverse lingue come "Sofascore". Installa l'app Sofascore e segui in diretta Atalanta Club Brugge KV sul tuo dispositivo mobile!
+Atalanta-Brugge, dove vederla in diretta tv e streaming Champions League 2024/2025: orario, probabili formazioni, arbitro
+Dopo la sconfitta tra le polemiche dell'andata, l'Atalanta è chiamata alla rimonta nella sfida di 
+Missione rimonta. L’Atalanta è chiamata a ribaltare la sconfitta per 2-1 subita in Belgio dal Club Brugge nella gara di ritorno dei playoff di Champions League al Gewiss. Gasperini si affida a Retegui per centrare la qualificazione agli ottavi di finale della coppa dalle grandi orecchie.
+
+Champions: Atalanta-Brugge, quando si gioca
+A che ora e dove vedere Atalanta-Brugge diretta TV
+Champions, Atalanta-Brugge dove vederla in streaming
+Il match tra Atalanta e Brugge è in programma stasera, martedì 18 febbraio, con fischio d’inizio fissato alle 21:00. Si parte dal 2-1 del primo atto a favore della compagine belga, che ha battuto la Dea tra le polemiche per il rigore concesso nel recupero su fallo inesistente di Hien e trasformato da 
+Al Gewiss Stadium, con la spinta dei propri tifosi, i nerazzurri proveranno a ribaltare il risultato con l’intento di staccare il pass per gli ottavi. Dando uno sguardo all’euro-percorso degli orobici, l’obiettivo è senza dubbio alla portata. Del resto, nella fase campionato l’Atalanta ha fermato sul pareggio Barcellona e Arsenal, ha dato filo da torcere al Real Madrid e ha letteralmente travolto Young Boys e Sturm Graz.
